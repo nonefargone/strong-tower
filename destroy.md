@@ -1,0 +1,1 @@
+![tall-cactus-plants-in-old-ceramic-terracotta-flower-pots-close-up-in-the-garden-decorative-plant-various-cactus-outdoor-2MCH8WA](https://github.com/user-attachments/assets/6afc5181-8296-475d-a5f5-900ee0393098)
