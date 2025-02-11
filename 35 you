@@ -1,3 +1,5 @@
+make
+
 signal
       currently 
 
@@ -26,3 +28,8 @@ three
 
 sen 
    you 
+
+master
+node
+
+restart
